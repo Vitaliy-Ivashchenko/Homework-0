@@ -1,3 +1,3 @@
-Huray
+Hurray!
 
 
